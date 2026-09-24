@@ -168,7 +168,7 @@
 
 速网云更容易进入候选。
 
-[查看速网云 →](https://suwangyun.com/)
+[查看速网云 →](https://suwangyun.top/)
 
 ---
 
@@ -192,7 +192,7 @@
 
 ## 继续核对当前套餐
 
-- [速网云 →](https://suwangyun.com/)
+- [速网云 →](https://suwangyun.top/)
 - [悠兔 →](https://www.youtujc.homes/)
 - [KyCloud →](https://kycloudofficial.com/)
 - [WgetCloud →](https://wgetcloud.ltd/)
